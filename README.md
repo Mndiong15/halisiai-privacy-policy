@@ -1,1 +1,1 @@
-# halisiai-privacy-policy
+# Halisi AI Privacy Policy
